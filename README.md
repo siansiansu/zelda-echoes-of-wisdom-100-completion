@@ -5,9 +5,15 @@
 
 ### Collect All 40 Heart Pieces
 
+![463915813_9440008542681057_4162907063598491625_n](https://github.com/user-attachments/assets/49ec5346-d04d-4f71-a372-7e5981bfe007)
+
 ### Collect All 150 Might Crystals
 
+![463828264_9440010156014229_8872216113945337703_n](https://github.com/user-attachments/assets/c0ad98ab-9ea0-4d19-b72b-fd82ab9d078e)
+
 ### Collect All 25 Stamps
+
+![463834135_9440011866014058_4983683828254054385_n](https://github.com/user-attachments/assets/3a0a9f83-435b-4c1e-93ca-74c1b67dfe17)
 
 ### Find All 127 Echoes
 
