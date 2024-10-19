@@ -2,6 +2,7 @@
 
 [![hackmd-github-sync-badge](https://hackmd.io/MubtaBGPTeGcT-IOzqh3hQ/badge)](https://hackmd.io/MubtaBGPTeGcT-IOzqh3hQ)
 
+![463489126_9440042039344374_2499506619053182691_n](https://github.com/user-attachments/assets/3870a9a1-c775-4bf1-836f-c9e8574903ff)
 
 ### Collect All 40 Heart Pieces
 
@@ -21,7 +22,11 @@
 
 ### Collect All 6 Automatons
 
+![464012273_9440036256011619_7270948794669923712_n](https://github.com/user-attachments/assets/f4fde33a-4d8c-45a8-bbec-235da83a4e0e)
+
 ### Find All 69 Smoothies
+
+![463484448_9440022522679659_731957215917350695_n](https://github.com/user-attachments/assets/f4bdb7c9-1c71-413d-84b5-4d3fa0213c36)
 
 ### Complete All 15 Stages in Slumber Dojo
 
@@ -41,6 +46,8 @@
 
 ### Gain Rewards From All 4 Minigames
 
+![463763916_9440040732677838_8177895711029095832_n](https://github.com/user-attachments/assets/5b02d71e-d958-4dba-afc6-46bc641c340f)
+
 ### Clear the Game on Hero Mode
 
-![463976235_9439994832682428_2967992288122882937_n](https://github.com/user-attachments/assets/803ced25-0647-4ef0-aae4-e5a288a5e80f)
+![464001762_9440023802679531_4461470314451739455_n](https://github.com/user-attachments/assets/ebdc9880-a4f0-4a2a-86cc-62935ab14210)
