@@ -1,4 +1,4 @@
-# 薩爾達傳說 智慧的再現全搜集
+# 薩爾達傳說 智慧的再現 100% 全收集
 
 [![hackmd-github-sync-badge](https://hackmd.io/MubtaBGPTeGcT-IOzqh3hQ/badge)](https://hackmd.io/MubtaBGPTeGcT-IOzqh3hQ)
 
